@@ -25,8 +25,7 @@ Me gusta explorar, limpiar y analizar datos para obtener insights que apoyen la 
 
 Si quieres conectar o ver más de mi trabajo:
 
-- LinkedIn: *pronto agregaré mi enlace*
-- Email: *allan@example.com*
+- Email: steven06042000@gmail.com
 
 ---
 
